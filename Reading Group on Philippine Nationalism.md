@@ -1,0 +1,5 @@
+Interrogate · Contextualize · Reimagine
+
+This reading laboratory is dedicated to a critical and collective examination of Philippine nationalism. In this reading group, we aim to treat texts not as structures but as arguments to be tested against different historical conditions and lived experiences. Through reading, contextualization, and dialogue, this reading group examines how the very idea of nationalism—within the context of the Philippines—is produced, contested, and transformed.
+
+Our reading discussions aim to value intellectual discipline over certainty, questions over conclusions, and engagement over performance. Our primary objective is to put forward that critique is not an act of negation but a practice of responsibility: to read critically, to think historically, and to re/imagine further.
